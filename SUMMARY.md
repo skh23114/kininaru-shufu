@@ -4,7 +4,6 @@
 * [KININARU BOX - アラフォー主婦の気になったことやお役立ち情報をお届けします♪](kininaru-box-arafnoninattakotoyaochiwookeshimasu.md)
 * [カテゴリ](kategori.md)
 * [検索](jian-suo.md)
-* [プライバシーポリシー](puraibashporish.md)
 * [Vtuber](vtuber.md)
 * [IT](it.md)
 * [なんJ](nanj.md)
