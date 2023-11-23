@@ -1,0 +1,30 @@
+# Vtuber
+
+* [【ホロライブ】4期ってマジで不仲なんかなって周年なると思うわ](https://kininaru-shufu.com/%E3%80%90%E3%83%9B%E3%83%AD%E3%83%A9%E3%82%A4%E3%83%96%E3%80%914%E6%9C%9F%E3%81%A3%E3%81%A6%E3%83%9E%E3%82%B8%E3%81%A7%E4%B8%8D%E4%BB%B2%E3%81%AA%E3%82%93%E3%81%8B%E3%81%AA%E3%81%A3%E3%81%A6%E5%91%A8/)
+*
+* [親のクレジットカード使ってVtuberに高額スパチャするガキが増えてるらしい](https://kininaru-shufu.com/%E8%A6%AA%E3%81%AE%E3%82%AF%E3%83%AC%E3%82%B8%E3%83%83%E3%83%88%E3%82%AB%E3%83%BC%E3%83%89%E4%BD%BF%E3%81%A3%E3%81%A6vtuber%E3%81%AB%E9%AB%98%E9%A1%8D%E3%82%B9%E3%83%91%E3%83%81%E3%83%A3%E3%81%99/)
+* [Vtuberで月20万稼いでるけど質問ある？](https://kininaru-shufu.com/vtuber%E3%81%A7%E6%9C%8820%E4%B8%87%E7%A8%BC%E3%81%84%E3%81%A7%E3%82%8B%E3%81%91%E3%81%A9%E8%B3%AA%E5%95%8F%E3%81%82%E3%82%8B%EF%BC%9F/)
+* [元Vtuberだけど質問ある？（表面上は個人勢だけど企業所属）](https://kininaru-shufu.com/%E5%85%83vtuber%E3%81%A0%E3%81%91%E3%81%A9%E8%B3%AA%E5%95%8F%E3%81%82%E3%82%8B%EF%BC%9F%EF%BC%88%E8%A1%A8%E9%9D%A2%E4%B8%8A%E3%81%AF%E5%80%8B%E4%BA%BA%E5%8B%A2%E3%81%A0%E3%81%91%E3%81%A9%E4%BC%81/)
+* [Vtuber運営専業だけど質問ある？（登録はみんな１万くらい、Twitterは合計したら１０万フォロワーくらい）](https://kininaru-shufu.com/vtuber%E9%81%8B%E5%96%B6%E5%B0%82%E6%A5%AD%E3%81%A0%E3%81%91%E3%81%A9%E8%B3%AA%E5%95%8F%E3%81%82%E3%82%8B%EF%BC%9F%EF%BC%88%E7%99%BB%E9%8C%B2%E3%81%AF%E3%81%BF%E3%82%93%E3%81%AA%EF%BC%91%E4%B8%87/)
+* [底辺Vtuberとオフパコしてきたけど質問ある？](https://kininaru-shufu.com/%E5%BA%95%E8%BE%BAvtuber%E3%81%A8%E3%82%AA%E3%83%95%E3%83%91%E3%82%B3%E3%81%97%E3%81%A6%E3%81%8D%E3%81%9F%E3%81%91%E3%81%A9%E8%B3%AA%E5%95%8F%E3%81%82%E3%82%8B%EF%BC%9F/)
+* [Vtuber運営専業だけど質問ある？](https://kininaru-shufu.com/vtuber%E9%81%8B%E5%96%B6%E5%B0%82%E6%A5%AD%E3%81%A0%E3%81%91%E3%81%A9%E8%B3%AA%E5%95%8F%E3%81%82%E3%82%8B%EF%BC%9F/)
+* [個人でやってるVtuber（登録者数18000人くらい）だけど質問ある？　月収は？　初期費用は？　収益化までどのくらいかかる？](https://kininaru-shufu.com/%E5%80%8B%E4%BA%BA%E3%81%A7%E3%82%84%E3%81%A3%E3%81%A6%E3%82%8Bvtuber%EF%BC%88%E7%99%BB%E9%8C%B2%E8%80%85%E6%95%B018000%E4%BA%BA%E3%81%8F%E3%82%89%E3%81%84%EF%BC%89%E3%81%A0%E3%81%91%E3%81%A9%E8%B3%AA/)
+* [大手Vtuberやってるけど質問ある？（ホロライブ or にじさんじのどちらか）](https://kininaru-shufu.com/%E5%A4%A7%E6%89%8Bvtuber%E3%82%84%E3%81%A3%E3%81%A6%E3%82%8B%E3%81%91%E3%81%A9%E8%B3%AA%E5%95%8F%E3%81%82%E3%82%8B%EF%BC%9F%EF%BC%88%E3%83%9B%E3%83%AD%E3%83%A9%E3%82%A4%E3%83%96-or-%E3%81%AB%E3%81%98/)
+* [新人Vtuberになったんだけど何か質問ある？](https://kininaru-shufu.com/%E6%96%B0%E4%BA%BAvtuber%E3%81%AB%E3%81%AA%E3%81%A3%E3%81%9F%E3%82%93%E3%81%A0%E3%81%91%E3%81%A9%E4%BD%95%E3%81%8B%E8%B3%AA%E5%95%8F%E3%81%82%E3%82%8B%EF%BC%9F/)
+* [Vtuberの切り抜き動画でお金稼いでるニートだけど、質問ある？](https://kininaru-shufu.com/vtuber%E3%81%AE%E5%88%87%E3%82%8A%E6%8A%9C%E3%81%8D%E5%8B%95%E7%94%BB%E3%81%A7%E3%81%8A%E9%87%91%E7%A8%BC%E3%81%84%E3%81%A7%E3%82%8B%E3%83%8B%E3%83%BC%E3%83%88%E3%81%A0%E3%81%91%E3%81%A9%E3%80%81/)
+* [Vtuberのオーディション受けるけど質問ある？](https://kininaru-shufu.com/vtuber%E3%81%AE%E3%82%AA%E3%83%BC%E3%83%87%E3%82%A3%E3%82%B7%E3%83%A7%E3%83%B3%E5%8F%97%E3%81%91%E3%82%8B%E3%81%91%E3%81%A9%E8%B3%AA%E5%95%8F%E3%81%82%E3%82%8B%EF%BC%9F/)
+* [Vtuberと結婚したけど質問ある？](https://kininaru-shufu.com/vtuber%E3%81%A8%E7%B5%90%E5%A9%9A%E3%81%97%E3%81%9F%E3%81%91%E3%81%A9%E8%B3%AA%E5%95%8F%E3%81%82%E3%82%8B%EF%BC%9F/)
+* [底辺VTuberだけど何か質問ある？](https://kininaru-shufu.com/%E5%BA%95%E8%BE%BAvtuber%E3%81%A0%E3%81%91%E3%81%A9%E4%BD%95%E3%81%8B%E8%B3%AA%E5%95%8F%E3%81%82%E3%82%8B%EF%BC%9F/)
+* [姉がVtuberやってるけどなんか質問ある？](https://kininaru-shufu.com/%E5%A7%89%E3%81%8Cvtuber%E3%82%84%E3%81%A3%E3%81%A6%E3%82%8B%E3%81%91%E3%81%A9%E3%81%AA%E3%82%93%E3%81%8B%E8%B3%AA%E5%95%8F%E3%81%82%E3%82%8B%EF%BC%9F/)
+* [Vtuberやってるけど何か質問ある？　割とアウトなところまで答えます。](https://kininaru-shufu.com/vtuber%E3%82%84%E3%81%A3%E3%81%A6%E3%82%8B%E3%81%91%E3%81%A9%E4%BD%95%E3%81%8B%E8%B3%AA%E5%95%8F%E3%81%82%E3%82%8B%EF%BC%9F%E3%80%80%E5%89%B2%E3%81%A8%E3%82%A2%E3%82%A6%E3%83%88%E3%81%AA%E3%81%A8/)
+* [VTuber事務所の元運営スタッフだったけどなんか質問ある？](https://kininaru-shufu.com/vtuber%E4%BA%8B%E5%8B%99%E6%89%80%E3%81%AE%E5%85%83%E9%81%8B%E5%96%B6%E3%82%B9%E3%82%BF%E3%83%83%E3%83%95%E3%81%A0%E3%81%A3%E3%81%9F%E3%81%91%E3%81%A9%E3%81%AA%E3%82%93%E3%81%8B%E8%B3%AA%E5%95%8F/)
+* [知り合いに有名Vtuberがいるけど質問ある？](https://kininaru-shufu.com/%E7%9F%A5%E3%82%8A%E5%90%88%E3%81%84%E3%81%AB%E6%9C%89%E5%90%8Dvtuber%E3%81%8C%E3%81%84%E3%82%8B%E3%81%91%E3%81%A9%E8%B3%AA%E5%95%8F%E3%81%82%E3%82%8B%EF%BC%9F/)
+* [俺、vtuberで食ってるおっさんだけど質問ある？](https://kininaru-shufu.com/%E4%BF%BA%E3%80%81vtuber%E3%81%A7%E9%A3%9F%E3%81%A3%E3%81%A6%E3%82%8B%E3%81%8A%E3%81%A3%E3%81%95%E3%82%93%E3%81%A0%E3%81%91%E3%81%A9%E8%B3%AA%E5%95%8F%E3%81%82%E3%82%8B%EF%BC%9F/)
+* [Vtuberの切り抜きでお小遣い稼いでるけど質問ある？](https://kininaru-shufu.com/vtuber%E3%81%AE%E5%88%87%E3%82%8A%E6%8A%9C%E3%81%8D%E3%81%A7%E3%81%8A%E5%B0%8F%E9%81%A3%E3%81%84%E7%A8%BC%E3%81%84%E3%81%A7%E3%82%8B%E3%81%91%E3%81%A9%E8%B3%AA%E5%95%8F%E3%81%82%E3%82%8B%EF%BC%9F/)
+* [Vtuberやってたけど質問ある？（ちなみに個人ではなく企業でやってた）](https://kininaru-shufu.com/vtuber%E3%82%84%E3%81%A3%E3%81%A6%E3%81%9F%E3%81%91%E3%81%A9%E8%B3%AA%E5%95%8F%E3%81%82%E3%82%8B%EF%BC%9F%EF%BC%88%E3%81%A1%E3%81%AA%E3%81%BF%E3%81%AB%E5%80%8B%E4%BA%BA%E3%81%A7%E3%81%AF%E3%81%AA/)
+* [vtuberのまとめサイト運営してるけど質問ある？](https://kininaru-shufu.com/vtuber%E3%81%AE%E3%81%BE%E3%81%A8%E3%82%81%E3%82%B5%E3%82%A4%E3%83%88%E9%81%8B%E5%96%B6%E3%81%97%E3%81%A6%E3%82%8B%E3%81%91%E3%81%A9%E8%B3%AA%E5%95%8F%E3%81%82%E3%82%8B%EF%BC%9F/)
+* [VTuberだけど質問ある？『登録者37,000人、社会人、個人、女性』](https://kininaru-shufu.com/vtuber%E3%81%A0%E3%81%91%E3%81%A9%E8%B3%AA%E5%95%8F%E3%81%82%E3%82%8B%EF%BC%9F%E3%80%8E%E7%99%BB%E9%8C%B2%E8%80%8537000%E4%BA%BA%E3%80%81%E7%A4%BE%E4%BC%9A%E4%BA%BA%E3%80%81%E5%80%8B%E4%BA%BA/)
+* [娘がVtuberになったんだけど質問ある？](https://kininaru-shufu.com/%E5%A8%98%E3%81%8Cvtuber%E3%81%AB%E3%81%AA%E3%81%A3%E3%81%9F%E3%82%93%E3%81%A0%E3%81%91%E3%81%A9%E8%B3%AA%E5%95%8F%E3%81%82%E3%82%8B%EF%BC%9F/)
+* [VTuberを生き甲斐にしてるけど質問ある？](https://kininaru-shufu.com/vtuber%E3%82%92%E7%94%9F%E3%81%8D%E7%94%B2%E6%96%90%E3%81%AB%E3%81%97%E3%81%A6%E3%82%8B%E3%81%91%E3%81%A9%E8%B3%AA%E5%95%8F%E3%81%82%E3%82%8B%EF%BC%9F/)
+
+1
