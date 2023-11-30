@@ -1,4 +1,4 @@
-# VPNまとめ
+# Copy of VPNまとめ
 
 * [無料VPNと有料VPNの違いについて勉強するスレ](https://kininaru-shufu.com/%E7%84%A1%E6%96%99vpn%E3%81%A8%E6%9C%89%E6%96%99vpn%E3%81%AE%E9%81%95%E3%81%84%E3%81%AB%E3%81%A4%E3%81%84%E3%81%A6%E5%8B%89%E5%BC%B7%E3%81%99%E3%82%8B%E3%82%B9%E3%83%AC/)\
 
